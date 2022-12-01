@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @PresG
+- 👀 I’m interested in Data Science/ Data analysis
+- 🌱 I’m currently learning how to become an Entry Level Data Analysis
+- 💞️ I’m looking to collaborate on Projects, Ideas, and Work Place Procedures
+- 📫 How to reach me. prestong17@gmail.com, my email
